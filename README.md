@@ -1,2 +1,2 @@
 # topslack
-Le best-of du sack Webeux
+Le best-of du slack Webeux
