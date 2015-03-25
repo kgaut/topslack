@@ -6,7 +6,7 @@ Le best-of du slack Webeux
 
 (attention, copier aussi les espaces, et mettre l'extension .md à son fichier)
 
-* chercher : `(.*]) `
+* chercher : `(.*]) ` (1 espace après la dernière parenthèse)
 * remplacer : `\*\*$1\*\*  ` (2 espaces après le dernier *)
 
 
