@@ -15,7 +15,7 @@ Le best-of du slack Webeux
 
 
 * chercher : `\n\n\w+.*`
-* remplacer : `[laisser vide]` (2 espaces à la fin)
+* remplacer : `[laisser vide]`
 
 
 ## todo
