@@ -4,7 +4,7 @@ Le best-of du slack Webeux
 
 ## Regexp pour mettre en forme les cop/col
 
-(attention, copier aussi les espaces)
+(attention, copier aussi les espaces, et mettre l'extension .md à son fichier)
 
 * chercher : `(.*]) `
 * remplacer : `\*\*$1\*\*  ` (2 espaces après le dernier *)
