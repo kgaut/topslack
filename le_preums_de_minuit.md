@@ -45,7 +45,7 @@ ahah
 
 **julien [00:03]**  
 mais QUOI ?  
-de quoi vous pârlez putain ?  
+de quoi vous parlez putain ?  
 
 **ludivine [00:03]**  
 l'enculayyyyyy  
