@@ -594,7 +594,7 @@ alors qe moi je peche au chalut
 **heybrgr [1:44 AM]**  
 elle a des rabatteurs  
 :heart: https://webeux.slack.com/archives/general/p1428191081014739
-Goulven Barongoulven
+Goulven
 alors qe moi je peche au chalut
 Today at 1:44 AM  
 @julien: j'espère que tout ça ira dans le best of  
