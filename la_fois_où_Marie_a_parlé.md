@@ -119,7 +119,7 @@ ptain j'ai honte
 R'TOURN DON À LA CAVE  
 
 **yoan [21:14]**  
-:smile:  
+:)  
 
 **julien [21:14]**  
 TU VOA PA K'TU M'FÉ HONT D'VANT LES GENS ?  
@@ -145,7 +145,7 @@ han moi aussi je fais ce smiley des fois !
 raccroche le téléphone  
 
 **heybrgr [21:15]**  
-:smile:  
+:)  
 
 **yoan [21:15]**  
 @nelly:  montre lui le vrai smiley  
@@ -206,7 +206,7 @@ des boobs à retoucher ?
 ELLE PARLE  
 
 **yoan [21:18]**  
-Cet archanement  :smile:  
+Cet archanement  :)  
 
 **nelly [21:18]**  
 premier mot de marie sur ce slack : des boobs  
@@ -313,7 +313,7 @@ et que la creche c'est bien du malheur, et que il faut s'écarter sur les trotoi
 et il est malade h24 ^^  
 
 **marie [21:24]**  
-ah ah ah :smile:  
+ah ah ah :)  
 
 **goulven [21:25]**  
 tu sais qu'il a voulu nous vendre ta fille ?  
@@ -370,7 +370,7 @@ en tout cas ils doivent tout deux n'écrire qu'avec deux doigts
 :ooh:  
 
 **yoan [21:27]**  
-:smile:  
+:)  
 
 **marie [21:28]**  
 à parce qu'on peut écrire avec plusieurs doigts ? impossible !  
@@ -408,7 +408,7 @@ _faisons lui croire que tout va bien_
 Ah oui oui @julien   hou lala ça va barder pour nous  
 
 **heybrgr [21:30]**  
-:smile:  
+:)  
 
 **nelly [21:31]**  
 pendant que tu n'étais pas là, on a parlé avec ta FEMME oui  
@@ -422,7 +422,7 @@ oui tu sais de ta FILLE
 **julien [21:31]**  
 haha  
 en plus là elle me dit "allez j'arrête de taper comme ça ils vont te faire chier"  
-bandes de salauds :smile:  
+bandes de salauds :)  
 
 **heybrgr [21:32]**  
 oui oui c'est ça  
@@ -435,7 +435,7 @@ BIEN SUR
 haha  
 
 **heybrgr [21:32]**  
-:smile:  
+:)  
 
 **julien [21:32]**  
 putain  
@@ -524,7 +524,7 @@ c'est comme ça que j'aurais dû appeler "notre" blog
 **julien [21:35]**  
 non mais par contre c'ets quoi cette histoire de soirée publicis ?  
 avec mon ex ou je sais pas quoi ?  
-vous m'avez intrigués sur ma propre vie :smile:  
+vous m'avez intrigués sur ma propre vie :)  
 
 **heybrgr [21:36]**  
 il ne se rappelle même plus de ce qu'il invente  
@@ -605,7 +605,7 @@ HAHA :')
 bon "on" va bouffer  
 
 **heybrgr [21:40]**  
-:smile:  
+:)  
 
 **julien [21:40]**  
 et ensuite "@marie" commandera une barrière pour notre "bébé"  
@@ -739,7 +739,7 @@ J'espère que c'est bien tout sauvegarder pour aller sur le best of sous le titr
 moi avec un masque de bébé  
 
 **heybrgr [21:43]**  
-:smile:  
+:)  
 
 **julien [21:43]**  
 à genoux sous le landeau découpé dessous  
@@ -830,7 +830,7 @@ http://www.femonite.com/wp-content/uploads/2012/05/lars-and-the-real-girl2.jpg (
 
 
 **yoan [21:47]**  
-:smile:  
+:)  
 
 **julien [21:48]**  
 le pire c'est que vous êtes salauds  
@@ -854,7 +854,7 @@ haha
 et j'ai vu des captures de chats  
 
 **heybrgr [21:49]**  
-:smile:  
+:)  
 
 **yoan [21:49]**  
 :')  
@@ -866,7 +866,7 @@ mais c'est tout
 batard  
 
 **toitagl [21:50]**  
-:smile:  
+:)  
 
 **heybrgr [21:50]**  
 même @goulven il nous disait l'autre jour que l'appart était vide  
@@ -940,7 +940,7 @@ TOUS
 surtout @yoan qui lui a fait croire qu'il était son fils adoptif  
 
 **yoan [21:59]**  
-:smile:  
+:)  
 
 **goulven [21:59]**  
 non c'est surtout quand je lui ai offert un livre en tissu et qu'il a fait comme si sa fille existait que j'étais mal  
