@@ -483,7 +483,7 @@ il fait à manger pour deux, triste histoire
 :joy:  
 
 **nelly [21:33]**  
-_ il pensant toujours que cette poupée inerte est sa fille_  
+_il pensant toujours que cette poupée inerte est sa fille_  
 
 **heybrgr [21:33]**  
 heureusement que le chat termine les restes  
@@ -498,7 +498,7 @@ me revoilà
 qui avait invoqué la schizophrénie  
 
 **nelly [21:34]**  
-_ vous pensez qu'il a piquer des photo de Kyan Khojandi en pensant que c'est lui ? _  
+_vous pensez qu'il a piquer des photo de Kyan Khojandi en pensant que c'est lui ? _  
 
 **heybrgr [21:34]**  
 han  
@@ -594,7 +594,7 @@ on lui dit qu'il est en réalité stagiaire chez Creads ou c'est trop tôt ?
 @captainamerica: même toi tu as cédé au chant des sirènes du slack ?  
 
 **yoan [21:38]**  
-_ marie is typing for a while _  
+_marie is typing for a while _  
 
 **julien [21:39]**  
 https://webeux.slack.com/archives/general/p1431373042003375
@@ -934,7 +934,7 @@ ON EST TOUS RESPONSABLE
 TOUS  
 
 **toitagl [21:58]**  
-#JeSuisJulien  
+\#JeSuisJulien  
 
 **heybrgr [21:58]**  
 surtout @yoan qui lui a fait croire qu'il était son fils adoptif  
