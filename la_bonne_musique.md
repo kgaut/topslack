@@ -975,7 +975,7 @@ sors de sous cette table
 
 **yoan [22:46]**  
 Je vais écrire ça dans #films-series-zique finalement  
-#teasing  
+\#teasing  
 J'allais me tromper de chan  
 
 **goulven [22:47]**  
