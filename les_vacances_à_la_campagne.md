@@ -300,7 +300,7 @@ Moi je veux
 mais faut que ça soit cloturé  
 
 **yamo [17:39]**   
-8-548 La Plaine, route de Soula, D809, 09000 Saint-Paul de Jarrat     
+La Plaine, route de xxx village yyy     
 Vous collez ça dans Maps     
 En vue satellite  
 
